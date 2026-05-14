@@ -1,4 +1,4 @@
-#  
+#  Experience king legacy like never before with king legacy no-ban Scripts, the #1 Script. Includes auto-collect and auto-farm for unbeatable
 
 
 
